@@ -6,7 +6,7 @@
 - 🤔 I'm looking for a help in learning the Spanish language.
 - 💬 Ask me about exceeding 24 hours a day.
 - 📬 How to reach me: nzyame@gmail.com
-- 😄 Pronouns: She likes to code and making photos.
+- 😄 Pronouns: She likes to code and to make photos.
 - ⚡ I am Manifestor Opportunist 4/6. Welcome.
 -->
 
