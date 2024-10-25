@@ -1,10 +1,9 @@
 ### ʜɪ ᴛʜᴇʀᴇ 👋 I am Marina. 
 
-- 🕊 I'm currently working on my will in a life path.
+- 🕊 I'm currently working on my life path.
 - 💬 Ask me about exceeding 24 hours a day.
-- 📬 How to reach me: nzyame@gmail.com
-- 😄 She likes to code and to make photos.
-- ⚡ I am Manifestor Opportunist 4/6. Welcome.
+- 😄 She likes to code.
+- ⚡ I am Manifestor Opportunist 4/6.
 -->
 
 <!--
